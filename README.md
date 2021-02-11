@@ -1,1 +1,2 @@
-UI sample • for cooperation DM
+© Mahdi Hadi
+UI sample • For cooperation DM

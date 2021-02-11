@@ -1,1 +1,1 @@
-UI sample for cooperation DM
+UI sample • for cooperation DM
